@@ -1,4 +1,4 @@
-# 
+# updated NFT Trading Bot for nft flip bot | trailing-stop & whitelist-bypass is the best nft flip bot, featuring trailing-stop and whitelist-bypass. Fast, smart, and optimized for
 
 
 
